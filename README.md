@@ -1,1 +1,1 @@
-# case-study-2-mssv-KHMT2411027-Nguy-n-Ho-i-H-i-Thi-n
+# case-study-2-mssv-KHMT2411027-Nguyễn Hoài Hải Thiên
